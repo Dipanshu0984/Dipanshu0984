@@ -2,7 +2,7 @@
 - 👀 I’m interested in talk with you
 - 🌱 I’m currently learning about you
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me @ur_athelete instragram 
+- 📫 How to reach me @ur_athelete 
 - 😄 Pronouns: when life hits uhh change position and hit the life
 - ⚡ Fun fact: ...
 
